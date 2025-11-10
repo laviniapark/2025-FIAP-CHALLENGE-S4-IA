@@ -3,7 +3,7 @@
 ---
 
 ## 🎥 **Vídeo de Demonstração**
-> **Link do YouTube:** *https://www.youtube.com/watch?v=BKnajnBOFi8*
+> **Link do YouTube:** *[https://www.youtube.com/watch?v=BKnajnBOFi8](https://youtube.com/shorts/Uv6mqqyXsGQ?si=QDbjIVNjLrGZB-wq)*
 
 ---
 
